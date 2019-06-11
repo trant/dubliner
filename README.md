@@ -1,3 +1,4 @@
+
 # Dublin Guide
 
 ### Kilmainham Gaol
@@ -33,8 +34,8 @@ I highly recommend these
 ## Day trips from Dublin
 
 You can do a full day trip outside of Dublin. For these day tours I recommend going with [Wild Rover Tours]([https://wildrovertours.com/](https://wildrovertours.com/))
-- Cliffs of Moher + Galway 
-- Giant's Causeway + Belfast
+-  Cliffs of Moher + Galway ![alt The Cliffs!](https://uc3c21001e479838abd9a0544002.previews.dropboxusercontent.com/p/thumb/AAdUkA1RrO2zU0E-IssAlXPikGe0Sx6lyPYpb9_gHt0NHRMEI2wcVLIz4VK7v9Syua-iha12DirxQBfpIp5IWP4k8U3pG3HiOM0lJyWnQ63Xlj7g3GV97wlizVmcTPFwg_S0Plk8x_pDQhB-BII0UFQwG1GBiitpqwRhwtmjCgu8gsyZlaJMwXTcOFdoa2_FnRj6ShJF8amhYyqUBUVHrsPAG-PNuO1obVjimizZry6Wt8UPHTj88AYHV0ir5HtdrvnfF3ON4sVoy1T-DndWBjvvy4KAvua7st622JxD4yjrjPYKXHrLTPApnZFQ_FZRuusPya1gQNY9dRC5Ge0YaIZFXV5St8LxLDxNPVL051RtQw9O4-h2gPSxX3D8xsMGqtg/p.jpeg?fv_content=true&size_mode=5)
+- Giant's Causeway + Belfast ![alt Giant's Causeway](https://uc06bd62a4cdf1577a4bf8bb2420.previews.dropboxusercontent.com/p/thumb/AAfnItC9uNod9K6HMDlPWzzZroSG0_EqSOBfIF0ihLIPBOC50A1xhAZ1m8-jKd9epwqpxdw6sUVgiD4PboE0Z6TOR_LT1iH-07JcBMea-IrZclakwS9vFTMdthQ6GKrRci7o21n1H3XDrayCYD6kXjOU8Og1bL3hezcFroKWbPy9b7cJ6mSJXpr9hmRpf1c-xWuB0db5YVZUEFEvcg9TAZ3mefjEaJOrTlJ6ICMVN7Y0K4MIIb3JQTkF1-t-ww64SkEn8oG6HzkJUMxGDrAPdCWG01gMdiPOgkd2TtMgYzMTvK05erkN4yh4exJ4075cfLEFqMLsfunxN-Gfds-UWoP_5wL-lRxtjnnL6clJUG9GflKVaApvr0jj_XD3b13mYms/p.jpeg?size=2048x1536&size_mode=3)
 - Glendalough in the Wicklow Mountains
 
 ## Restaurants
