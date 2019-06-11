@@ -60,10 +60,6 @@ You can do a full day trip outside of Dublin. For these day tours I recommend go
 
 ## Just around Pubs
 
-<![endif]-->
-
-**Just around the corner Pubs**
-
 [Cobblestone](https://goo.gl/maps/abq5iEUD5AD2) best for traditional Irish music. Has live music very often and cheap pints.
 
 [Token](https://goo.gl/maps/orvn7GxZKQL2) arcade games, they also have food and drinks available.
