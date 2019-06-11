@@ -19,23 +19,21 @@ Visiting the house of the Irish Gold is a must! You get a chance to learn the hi
 
 ### Little museum of Dublin
 Small but cool museum that tells a story about Dublin. More info [here](https://www.littlemuseum.ie/)
-
+https://uc172ddd1572f6679100b8fde825.previews.dropboxusercontent.com/p/thumb/AAfrq95FCJ0AAQuGPstewCIVHiLZB06QhMT6BadhYUs9QSwdHF6XdC53yX3eaPrgIubnNEbocOoMxDjT6T0_IbAwt2yscbv3KHku6-VFoSlAnEtMUKe2yuZeCs7UnP3ynuQa_Cnh0prpbkYtMo8h9BtzkQpmDQLOJStlceV58S6iww6AsecOzzNZg3a09u431qHMNNaMP27GhjnTOGWY5SRY_rO8QnY4QYOuC_Iu5iV6ySskapCkzLr3I9exrUoDKtif1wZila33r5yKo0Xt1KPnmsFqyeG3QxnTSSRCliQmzcbDQvR19l5iGhODIe2BDgr8muOkiXB1i3uzkdbpwiYTMhQdDdmrPPlldfqjcl9Qd_DqapuI1NG3pVNIRzH-Hfo/p.jpeg?size=2048x1536&size_mode=3
 
 ## Hikes around Dublin
 
 These hikes are a few minutes away from Dublin by DART (urban train). The best ones can be seen [here](https://www.ireland.com/en-no/destinations/republic-of-ireland/dublin/articles/dublin-five-walks-outside-the-city/)
 
 I highly recommend these 
-- Howth Cliff Walk
-
-
-- Killiney Hill Hike
-- Bray to Greystones Cliff Walk
+- Howth Cliff Walk ![alt](https://uc86b7793149e960e5267f971f71.previews.dropboxusercontent.com/p/thumb/AAdoXr0Q0yvQNuI-Phs9vYKlftcJ2_Pure38R2B7qS6YLlX_LJ-7kO6OGjV6hjiE_7O-27o7IElTvHVkZUhnvZwrruCXliLoWzhPOHFYHOzi8lFwTu3MzDqTza1tULIT_WB_82X7V4ZMjq3qAYIKX__Ksevs0FqJC3UUbW9qzx6fvB2gf5zpR3OP9GpZAOK_7WxPq8IhnCXm9PHoBiFz8qTgiZVIqK1PYeVd2CjhbUxrl4ndU7RXQFlHhHtGVpVLKlaJvLl9q90Ayw9bAgtiuWAMhB_GyQHTOj94PEioXvtv7rXQ7CNg2yLQ8r1MUPxyhYb669MMq8g-ejQ_EhlSMhI5Lw3PDLFAcKap2ZWza6pGf1pcwc-q8qGLWUNx_ryMbV0/p.jpeg?size=2048x1536&size_mode=3)
+- Killiney Hill Hike ![alt](https://ucaaf1c82ea85071103e483c261a.previews.dropboxusercontent.com/p/thumb/AAc0zl_yg5nk6zj07RwnEV8p3xb8Kf8T6t_i5eXjw_HM7Y8AwSt-d22akFyRPBVHHVkpHETToTF7CUu_yNgyL5_mQZpIZF7XNsgvkK3rsaOSYdcHSb6QwVsDji5uWarBuFQPjUNoswc88NPatawxyKxTjmXLixjF7Y6TGuwUidb68kiLRcwFUEpj1BND2czNnMeR10WU3CDHUNwuT70QLH3kMZCN4Upj8o2mFm8uMbFw3Rg8IsFpDm9U4ECWQVGdb-nv6Ek-aNOMZjOXULM2fmKW2h2_E1igx6sgD7c1WcKXBPih0ieFUSr29AeuXx2DYC4iPrAJ-yVF5LI4g7lETp3mA1rQ_oda4np00oh8NuJHPnN_AYXdIpucL-M3bM-qJho/p.jpeg?size=2048x1536&size_mode=3)
+- Bray to Greystones Cliff Walk ![alt](https://uc172ddd1572f6679100b8fde825.previews.dropboxusercontent.com/p/thumb/AAfrq95FCJ0AAQuGPstewCIVHiLZB06QhMT6BadhYUs9QSwdHF6XdC53yX3eaPrgIubnNEbocOoMxDjT6T0_IbAwt2yscbv3KHku6-VFoSlAnEtMUKe2yuZeCs7UnP3ynuQa_Cnh0prpbkYtMo8h9BtzkQpmDQLOJStlceV58S6iww6AsecOzzNZg3a09u431qHMNNaMP27GhjnTOGWY5SRY_rO8QnY4QYOuC_Iu5iV6ySskapCkzLr3I9exrUoDKtif1wZila33r5yKo0Xt1KPnmsFqyeG3QxnTSSRCliQmzcbDQvR19l5iGhODIe2BDgr8muOkiXB1i3uzkdbpwiYTMhQdDdmrPPlldfqjcl9Qd_DqapuI1NG3pVNIRzH-Hfo/p.jpeg?size=2048x1536&size_mode=3)
 
 ## Day trips from Dublin
 
 You can do a full day trip outside of Dublin. For these day tours I recommend going with [Wild Rover Tours]([https://wildrovertours.com/](https://wildrovertours.com/))
-- Cliffs of Moher + Galway
+- Cliffs of Moher + Galway 
 - Giant's Causeway + Belfast
 - Glendalough in the Wicklow Mountains
 
