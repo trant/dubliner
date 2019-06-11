@@ -4,7 +4,7 @@
 ![alt Jail](https://upload.wikimedia.org/wikipedia/commons/c/c8/Kilmainham2.jpg)
 
 
-This jail is by far the best place to visit while in Dublin. You will learn a lot about the Irish History. A lot of movies where filmed in [here](https://www.imdb.com/search/title?locations=Kilmainham%20Jail,%20Dublin,%20County%20Dublin,%20Ireland) too
+This jail is by far the best place to visit while in Dublin. You will learn a lot about the Irish History. A lot of [movies]((https://www.imdb.com/search/title?locations=Kilmainham%20Jail,%20Dublin,%20County%20Dublin,%20Ireland)) where filmed here
 
 You need to book your tickets online and IN ADVANCE because it is always sold out!
 Tickets can be bought [here](http://kilmainhamgaol.admit-one.eu/index.php?s=OPW_KILM&p=calendar&ev=TOUR&language=ENG)
