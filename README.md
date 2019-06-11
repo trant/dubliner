@@ -20,7 +20,6 @@ Visiting the house of the Irish Gold is a must! You get a chance to learn the hi
 
 ### Little museum of Dublin
 Small but cool museum that tells a story about Dublin. More info [here](https://www.littlemuseum.ie/)
-https://uc172ddd1572f6679100b8fde825.previews.dropboxusercontent.com/p/thumb/AAfrq95FCJ0AAQuGPstewCIVHiLZB06QhMT6BadhYUs9QSwdHF6XdC53yX3eaPrgIubnNEbocOoMxDjT6T0_IbAwt2yscbv3KHku6-VFoSlAnEtMUKe2yuZeCs7UnP3ynuQa_Cnh0prpbkYtMo8h9BtzkQpmDQLOJStlceV58S6iww6AsecOzzNZg3a09u431qHMNNaMP27GhjnTOGWY5SRY_rO8QnY4QYOuC_Iu5iV6ySskapCkzLr3I9exrUoDKtif1wZila33r5yKo0Xt1KPnmsFqyeG3QxnTSSRCliQmzcbDQvR19l5iGhODIe2BDgr8muOkiXB1i3uzkdbpwiYTMhQdDdmrPPlldfqjcl9Qd_DqapuI1NG3pVNIRzH-Hfo/p.jpeg?size=2048x1536&size_mode=3
 
 ## Hikes around Dublin
 
